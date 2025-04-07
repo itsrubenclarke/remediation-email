@@ -14,5 +14,5 @@ Let me know if you have any questions or need any adjustments!
 
 Best regards,
 
-**Ruben, Security Analyst**<br/>
+**Ruben Clarke, Security Analyst**<br/>
 **Governance, Risk, and Compliance**
